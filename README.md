@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sharan-xd
-- 👀 I’m interested in . LISTENING RAP MUSIC
+- 👀 I’m interested in . exploring the web
 - 🌱 I’m currently learning . BCA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ..SHARANCOLASO4@GMAIL.COM
